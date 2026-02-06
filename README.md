@@ -31,4 +31,5 @@ Maximum battery life • High contrast • No garbage
 - Made for clarity and performance
 
 ════════════════════════════════════════
+
 Dr. Rainer Reinhardt | 2026
